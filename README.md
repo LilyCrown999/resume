@@ -1,2 +1,2 @@
 # resume
- CV fo usuage
+ CV for usuage of sir crown 👑...
